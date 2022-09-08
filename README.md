@@ -1,3 +1,3 @@
-Nama : FRISYA AKHLASHA M.F.<br />
-NIM : 6701202033<br />
-**Assesment 1**
+FRISYA AKHLASHA M.F.<br />
+6701202033<br />
+**ASSESMENT 1**
